@@ -1,6 +1,4 @@
-
-
-# **Should the Government, through an Act of Congress, Mandate Building Professionals to Design, Build and Operate Green Buildings?**
+# **SHOULD GOVERNMENT, THROUGH AN ACT OF CONGRESS, MANDATE BUILDING PROFESSIONALS TO DESIGN, BUILD AND OPERATE GREEN BUILDINGS?**
 
 # Executive Summary
 
