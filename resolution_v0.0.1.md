@@ -2,7 +2,6 @@
 
 # DRAFT RESOLUTION
 
-
 **WHEREAS**, the Philippines, as a responsible global citizen, must recognize that increasing urgency to address the plethora of negative environmental impacts such as air, water and land pollution exists;
 
 **WHEREAS**, the Built Environment is significantly responsible for such negative environmental consequences and that sustainable development in the property sector must be pursued through the crafting of green building policies and regulations that promote environmental, economic and social development;
