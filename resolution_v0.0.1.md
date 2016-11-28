@@ -1,6 +1,6 @@
 # **THE GOVERNMENT, THROUGH AN ACT OF CONGRESS, SHOULD MANDATE BUILDING PROFESSIONALS TO DESIGN, BUILD AND OPERATE GREEN BUILDINGS.**
 
-# RESOLUTION
+# DRAFT RESOLUTION
 
 
 **WHEREAS**, the Philippines, as a responsible global citizen, must recognize that increasing urgency to address the plethora of negative environmental impacts such as air, water and land pollution exists;
