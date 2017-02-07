@@ -14,7 +14,7 @@
 
 **WHEREAS**, the Balangkasan Representatives believe that THE Government must mandate the establishment of a responsive and able governance body with representation from both the public and private sectors which ensure equal representation of all materially-affected stakeholders in the property industry;
 
-**WHEREAS**, the Balangkasan Representatives agree that the Government must mandate the establishment of minimum core green building standards appropriate to various building size, scale and scope must be designed, developed, adopted and implemented;
+**WHEREAS**, the Balangkasan Representatives agree that the Government must design, develop, adopt and implementminimum core green building standards appropriate to various building size, scale and scope;
 
 **WHEREAS**, the Balangkasan Representatives agree that the Government must provide financial and non-financial incentives for green building projects which are exemplars of environmental performance as verified through open, fair, and balanced third-party inspection and assessment in accordance with consensus-driven and voluntary green building rating systems recognized by the Philippine Government and the International Community;
 
