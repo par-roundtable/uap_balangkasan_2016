@@ -29,4 +29,5 @@
 **BE IT FURTHER RESOLVED**, that a letter of recommendation from the Organizing Chair Arch. Rowena Ramos be submitted to the National Board of the United Architects of the Philippines for adoption as a formal binding policy of the United Architects of the Philippines.
 
 **PASSED AND ADOPTED** this 25th day of November, 2016.
+
 **APPROVED** this 25th day of November, 2016.

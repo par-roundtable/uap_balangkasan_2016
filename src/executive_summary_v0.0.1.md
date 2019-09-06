@@ -11,3 +11,4 @@ On 19 February 1977, Presidential Decree No. 1096, otherwise known as the Nation
 On 22 June 2015, the Department of Public Works and Highways issued the National Green Building Code as a Referral Code.  This Code was developed under the direction of the DPWH Secretary with coordination and support from Philippine building professionals.  The mandate to implement of this Code is not absolute and is limited only to projects with a gross floor area of 20,000 square meters.     
 
 At present, without question and doubt, there is consensus among building professionals that the plethora of negative environmental impacts that buildings create demands that environmental protection and conservation must be central to the way buildings are designed, constructed and operated.  However, the issue whether or not green building should be a mandate for building professionals exists.
+
